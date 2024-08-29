@@ -1,4 +1,4 @@
-![4aac857cdcb2ac5dd4ee7a39c8b20822](https://github.com/user-attachments/assets/3c7b284e-68da-4446-b63b-1a32319cf261)
+
 
 ✧˖°:Call me Zivian or Vinn
 ✧˖°:trans + they/them
