@@ -34,7 +34,7 @@
 
 -Problematic people
 
--Freakiness (feel uncomfable)
+-Randomly starting something type of people (triggers my anger
 
 -(pony town) Randomly kissed [if not green name, it bothers me sry.
 
