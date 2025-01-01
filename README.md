@@ -1,1 +1,1 @@
-<img src="https://i.pinimg.com/736x/19/6b/5a/196b5a71e056c8c6049f8c9d95830c4c.jpg" alt="This may contain: two cartoon characters are talking to each other"/>![image](https://github.com/user-attachments/assets/9b05e781-6ede-4ef2-91cd-8578a86cc1fd)
+<img src="blob:chrome-untrusted://media-app/b6949936-dc5e-4673-b444-f4553ff1030c" alt="399537531-9b05e781-6ede-4ef2-91cd-8578a86cc1fd.png"/>![image](https://github.com/user-attachments/assets/436ffd98-b41e-40fb-bec6-9286a87e94d0)
