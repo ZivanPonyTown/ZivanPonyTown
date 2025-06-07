@@ -1,1 +1,1 @@
-<img src="https://media1.tenor.com/m/ZH8AuisVQEIAAAAC/forsaken-forsaken-roblox.gif" alt="a cartoon character holding a sword in a video game ."/>![working on strawpage..]
+<img src="https://media.tenor.com/9TebMbBf3pMAAAAM/eternal-sugar-cookie.gif" alt="a close up of a person holding a cell phone in their hand ."/>![image](https://github.com/user-attachments/assets/a2dacf11-cecc-466e-9ed4-aedcc6c7d19f)
