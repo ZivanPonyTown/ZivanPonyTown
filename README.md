@@ -1,1 +1,1 @@
-<img src="https://media.tenor.com/9TebMbBf3pMAAAAM/eternal-sugar-cookie.gif" alt="a close up of a person holding a cell phone in their hand ."/>![image](https://github.com/user-attachments/assets/a2dacf11-cecc-466e-9ed4-aedcc6c7d19f)
+<img src="https://media.tenor.com/czX-p4uw-r0AAAAM/looey-dandy-world.gif" alt="Dandys World Dance GIF - Dandys world Dance Dandy - Discover &amp; Share GIFs"/>![Get looey'd]
