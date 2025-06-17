@@ -1,1 +1,1 @@
-<img src="https://media.tenor.com/czX-p4uw-r0AAAAM/looey-dandy-world.gif" alt="Dandys World Dance GIF - Dandys world Dance Dandy - Discover &amp; Share GIFs"/>![Get looey'd]
+<img src="https://media1.tenor.com/m/s9qHTFkmwXUAAAAC/vee-dandys-world-dandys-world.gif" alt="two cartoon characters are standing next to each other in front of a podium with a flower on it"/>![your reminder to enjoy living, if not just enjoy yourself and your existence.]
